@@ -1,4 +1,4 @@
-## Just Starting U+1FAE3
+## Just Starting :face_with_peeking_eye:
 
 <!--
 **Calzetox/Calzetox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
