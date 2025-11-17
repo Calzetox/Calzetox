@@ -1,4 +1,4 @@
-## Just Starting 🫣
+## Just Starting U+1FAE3
 
 <!--
 **Calzetox/Calzetox** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
